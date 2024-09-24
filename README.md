@@ -13,4 +13,4 @@ I am passionate about the intersection of Marketing, AI, Data Analytics, and Mac
 👩🏼‍🏫👩🏼‍💻👩🏼‍🔧
 
 **My Contacts:**
-- [Linkedin](http://https://www.linkedin.com/in/özgür-kaya/)
+- [Linkedin](https://www.linkedin.com/in/%C3%B6zg%C3%BCr-kaya/)

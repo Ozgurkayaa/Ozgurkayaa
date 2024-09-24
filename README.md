@@ -1,6 +1,4 @@
-## Hi there 👋
-
-I’m Ozgur Kaya,
+## Hi there 👋 I’m Ozgur Kaya,
 
 I'm a Marketing Data Specialist with a strong background in B2B Digital Marketing, CRM Analytics, Predictive Marketing, and Data-Driven Marketing. 
 
